@@ -1,1 +1,1 @@
-# ChipCreative magazine
+# ChipCreative Magazine
